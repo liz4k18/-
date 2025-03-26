@@ -1,1 +1,1 @@
-Ptactika
+PRAKTIKA
